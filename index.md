@@ -1,12 +1,8 @@
-## Welcome to GitHub Pages
+## Glixxzy
 
-You can use the [editor on GitHub](https://github.com/glixxzzy/glixxzzy.github.io/edit/main/index.md) to maintain and preview the content for your website in Markdown files.
-
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+Hey!I'm Gliz and I will post a few hacks on here to make sure those who have GitHub blocked can access my hacks!
 
 ### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 
 ```markdown
 Syntax highlighted code block
