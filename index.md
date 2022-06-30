@@ -40,3 +40,8 @@ Glixxzzy has been stealing (or skidding) these hacks from other people, mostly r
 If you want REAL hacks from Gliz, use https://schoolcheats.net/blooket.
 
 Plus, there are many new blooket hackers you should check out, such as rxzyx, zastix, and qaiik.
+
+
+Sponsored by Villains Developments x Zastix Developments
+
+[click here to learn more](https://www.youtube.com/watch?v=Ra5suD-d-jQ)
