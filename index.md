@@ -16,6 +16,7 @@ I also deflect via emotion! [as seen here](https://github.com/glixxzzy/blooket-h
 I am a failure, probably get bad grades in school, and get bullied 15x a day for having type 69 autism.  
 
 Also I don't know how an IP works! What is an IP guys? Private or public????  
+I don't even know how to make a proper GitHub pages site with real information so I hired l2vy7 to work on it with me!
 
 Want to see me fold in action? [Click here!](https://github.com/glixxzzy/blooket-hack/issues?page=1&q=is%3Aissue+is%3Aclosed)  
 [Actual Gliz announcement](https://web.archive.org/web/20220521162401/https://twitter.com/glizuwu/status/1528048868629299200)  
