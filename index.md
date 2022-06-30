@@ -1,33 +1,21 @@
 ## Glixxzy
 
-Hey!I'm Gliz and I will post a few hacks on here to make sure those who have GitHub blocked can access my hacks!
+Hey!
+I'm "Gliz"™️ and I'm a fake ass, 10 year old bitch that is taking "legal action" on other fakers!  
 
-### Markdown
+I code none of my hacks and skid from multiple other people such as [rxzyx](https://github.com/rxzyx), [issue](https://github.com/glixxzzy/blooket-hack/issues/355) (for: deceptive dinos)  
 
-```markdown
-Syntax highlighted code block
+I love taking down people's issues if they go against me!  
+I also deflect via emotion! [as seen here](https://github.com/glixxzzy/blooket-hack/issues/337)
 
-# Header 1
-## Header 2
-### Header 3
+[LOL](https://github.com/glixxzzy/blooket-hack/issues/331)  
+[LOL](https://github.com/glixxzzy/blooket-hack/issues/334)  
+[LOL](https://github.com/glixxzzy/blooket-hack/issues/197)  
 
-- Bulleted
-- List
 
-1. Numbered
-2. List
+I am a failure, probably get bad grades in school, and get bullied 15x a day for having type 69 autism.  
 
-**Bold** and _Italic_ and `Code` text
+Also I don't know how an IP works! What is an IP guys? Private or public????  
 
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/glixxzzy/glixxzzy.github.io/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+Want to see me fold in action? [Click here!](https://github.com/glixxzzy/blooket-hack/issues?page=1&q=is%3Aissue+is%3Aclosed)  
+[Actual Gliz announcement](https://web.archive.org/web/20220521162401/https://twitter.com/glizuwu/status/1528048868629299200)  
